@@ -1,0 +1,1 @@
+A waqf (or wakaf) is an Islamic charitable endowment where an individual permanently dedicates property or assets—like land, buildings, or money—for religious, educational, or social purposes. Lets waqf together.
